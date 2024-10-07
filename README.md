@@ -1,7 +1,1 @@
-![limboley](https://github.com/LUISBITE/LUISBITE/assets/122334302/c0b0b136-880d-4b51-abe5-4db3557bb51d)
-
-YES I DO NEED ALL THESE RENTRIES OKAY
-
-[short rentry](https://rentry.co/iorikai) + [short rentry](https://rentry.co/getyourheartbeat) + [long rentry](https://rentry.co/thesunthatneversets) + [guestbook](https://mikemorton.123guestbook.com/) + [strawpage](https://motohashi.straw.page/)
-
-<!--
+![limboley](https://camo.githubusercontent.com/00b2b038701608be1a7a1460bf8286a38767a3fa49ee77f823f911d31d9ff6a6/68747470733a2f2f7062732e7477696d672e636f6d2f6d656469612f475858435a4b766245414141634a523f666f726d61743d6a7067266e616d653d39303078393030)
